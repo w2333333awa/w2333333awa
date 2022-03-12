@@ -1,3 +1,4 @@
-- 👋 Hi, I’m w2333333awa
+- 👋 Hi, I’m is w2333333awa
+- 🌍 I live in China
 - 👀 I’m interested in programming
-- 📫 my mail box is w2333333awa@outlook.com
+- 📫 this it my mail box is w2333333awa@outlook.com
